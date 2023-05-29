@@ -25,8 +25,8 @@ Currently improving my tech skills while diving deeper into server-side developm
 
 ## 📫 How to reach me
 
-- LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/mohammed-elamin-156163163/)
-- Email: [yourEmail@email.com](mohammedelamin21.me@gmail.com)
+- LinkedIn: [My LinkedIn](https://www.linkedin.com/in/mohammed-elamin-156163163/)
+- Email: [My Personal Mail](mohammedelamin21.me@gmail.com)
 
 ## 😄 Pronouns
 
